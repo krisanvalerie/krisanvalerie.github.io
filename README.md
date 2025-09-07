@@ -1,4 +1,4 @@
-### Hi, call me Krisan!
+### Hi, it's Krisan!
 
 🎓 _Graduated with a Bachelor of Science with Honours in Forestry_
 
@@ -19,3 +19,5 @@ Having finished my undergraduate studies in forest management (policy division) 
 In the long term, I aim to make my contribution to scaling social innovation that is more grounded, community-centric, impact-focused, and data-driven.
 
 ## To contact me, please connect to my [LinkedIn](https://www.linkedin.com/in/kvalerie) 😊
+
+## Or see my visual journey on my [Instagram](www.instagram.com/krisanvalerie) 👍
