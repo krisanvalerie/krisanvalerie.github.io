@@ -1,20 +1,18 @@
-_Graduated with a Bachelor of Science with Honours in Forestry, experienced in community engagement and partnerships, devoted to scaling social interventions for orphanage communities._ 
+### Hi, call me Krisan!
 
-## Interests
-Social Innovation, Human Service, and Natural Resource Management
+🎓 _Graduated with a Bachelor of Science with Honours in Forestry_
+🎤 _Experienced in community engagement and partnerships_
+🕊️ _Devoted to scaling social interventions for orphanage communities_ 
 
-## About Me
-Krisan is a Minahasan woman who is passionate about connecting and mobilizing others in effort to create tangible and sustainable social innovation. She strives to combine empathy, compassion, critical thinking, and effectiveness for strategic interventions.
+## Take a glimpse into my work:
+👩🏻‍💻 Social Innovation at [Baku Bantu Sulut](https://bakubantu.wordpress.com/) 
+🤝 Human Service and Natural Resource Management listed in my [LinkedIn](https://www.linkedin.com/in/kvalerie)
 
-Having finished her undergraduate studies in forest management (policy division) and her research internships, she is guided by a commitment to DEI and is equipped with analytical skills. Moreover, she is adaptable and resourceful; this can be seen from her diverse experiences, from taking leadership roles in social projects, being a youth ambassador for North Sulawesi, working for human services, and more.
+## More about me:
+I am a Minahasan woman who is passionate about connecting and mobilizing others in effort to create tangible and sustainable social innovation. I strive to combine empathy, compassion, critical thinking, and effectiveness for strategic interventions.
 
-In the long term, she aims to make her contribution to scaling social innovation that is more grounded, community-centric, impact-focused, and data-driven.
+Having finished my undergraduate studies in forest management (policy division) and my research internships, I am guided by a commitment to DEI and am equipped with analytical skills. Moreover, I am adaptable and resourceful; this can be seen from my diverse experiences, from taking leadership roles in social projects, being a youth ambassador for North Sulawesi, working for human services, and more. 
 
-## Skills
-- Conceptual Thinking
-- Empathy
-- Versatility
-- Communication
+In the long term, I aim to make my contribution to scaling social innovation that is more grounded, community-centric, impact-focused, and data-driven.
 
-## Contact
-You can reach me at [LinkedIn](https://www.linkedin.com/in/kvalerie) or [Instagram](https://www.instagram.com/krisansangari).
+## To contact me, please connect to my [LinkedIn](https://www.linkedin.com/in/kvalerie) 😊
