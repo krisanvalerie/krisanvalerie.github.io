@@ -19,5 +19,3 @@ In the long term, she aims to make her contribution to scaling social innovation
 
 ## Contact
 You can reach me at [LinkedIn](https://www.linkedin.com/in/kvalerie) or [Instagram](https://www.instagram.com/krisansangari).
-theme: jekyll-theme-minima
-
