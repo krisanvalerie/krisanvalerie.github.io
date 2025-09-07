@@ -1,4 +1,4 @@
-<img src="https://github.com/user-attachments/assets/14254b32-338e-4a39-b76c-0a34f1c157a6" alt="Alt Text" width="150" height="150" align="left"> 
+<img src="https://github.com/user-attachments/assets/e13042c0-d04d-4daf-ba6d-21a5f2e5d34e" alt="Alt Text" width="150" height="150" align="left"> 
 
 ### Hi, I'm Krisan!
 🎓 _Graduated with a Bachelor of Science with Honours in Forestry_
@@ -9,9 +9,11 @@
 
 
 ## Take a glimpse into my work:
-👩🏻‍💻 Social Innovation at [Baku Bantu Sulut](https://bakubantu.wordpress.com/) 
+👩🏻‍💻 Social Innovation at [Baku Bantu Sulut](https://bakubantu.wordpress.com/) (self-employed)
 
-🤝 Human Service and Natural Resource Management listed in my [LinkedIn](https://www.linkedin.com/in/kvalerie)
+💼 Presales, Customer Success, and Project Team for Dryad Networks at [9Sky Ventures](https://9skyventures.com/) (contract)
+
+🤝 Other Human Service and Natural Resource Management Works are listed in my [LinkedIn](https://www.linkedin.com/in/kvalerie)
 
 ## More about me:
 <p align="justify"> I am a Minahasan woman who is passionate about connecting and mobilizing others in effort to create tangible and sustainable social innovation. I strive to combine empathy, compassion, critical thinking, and effectiveness for strategic interventions.
