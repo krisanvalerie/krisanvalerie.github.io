@@ -1,11 +1,14 @@
 ### Hi, call me Krisan!
 
 🎓 _Graduated with a Bachelor of Science with Honours in Forestry_
+
 🎤 _Experienced in community engagement and partnerships_
+
 🕊️ _Devoted to scaling social interventions for orphanage communities_ 
 
 ## Take a glimpse into my work:
 👩🏻‍💻 Social Innovation at [Baku Bantu Sulut](https://bakubantu.wordpress.com/) 
+
 🤝 Human Service and Natural Resource Management listed in my [LinkedIn](https://www.linkedin.com/in/kvalerie)
 
 ## More about me:
