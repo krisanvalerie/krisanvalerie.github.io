@@ -20,4 +20,4 @@ In the long term, I aim to make my contribution to scaling social innovation tha
 
 ## To contact me, please connect to my [LinkedIn](https://www.linkedin.com/in/kvalerie) 😊
 
-## Or see my visual journey on my [Instagram](www.instagram.com/krisanvalerie) 👍
+## Or see my visual journey on my [Instagram](https://www.instagram.com/krisanvalerie/) 👍
