@@ -1,5 +1,4 @@
-# Krisan Valerie Sangari
-Graduated with a Bachelor of Science with Honours in Forestry, devoted to scaling social interventions for orphanage communities. 
+_Graduated with a Bachelor of Science with Honours in Forestry, experienced in community engagement and partnerships, devoted to scaling social interventions for orphanage communities._ 
 
 ## Interests
 Social Innovation, Human Service, and Natural Resource Management
