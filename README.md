@@ -13,7 +13,7 @@
 
 💼 Presales, Customer Success, and Project Team for Dryad Networks at [9Sky Ventures](https://9skyventures.com/) (contract)
 
-🤝 Other Human Service and Natural Resource Management Works are listed on my [LinkedIn](https://www.linkedin.com/in/kvalerie)
+🤝 Other Human Service and Natural Resource Management works are listed on my [LinkedIn](https://www.linkedin.com/in/kvalerie)
 
 ## More about me:
 <p align="justify"> I am a Minahasan woman who is passionate about connecting and mobilizing others in effort to create tangible and sustainable social innovation. I strive to combine empathy, compassion, critical thinking, and effectiveness for strategic interventions.
