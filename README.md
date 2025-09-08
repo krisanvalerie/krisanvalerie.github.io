@@ -3,7 +3,7 @@
 ### Hi, I'm Krisan!
 🎓 _Graduated with a Bachelor of Science with Honours in Forestry_
 
-🎤 _Experienced in community engagement and partnerships_
+🎤 _Experienced in community engagement and communication_
 
 🕊️ _Devoted to scaling social interventions for orphanage communities_ 
 
