@@ -1,4 +1,4 @@
-<img src="https://github.com/user-attachments/assets/8eb14607-f3d7-4231-8cc0-b2866630017d" alt="Alt Text" width="150" height="150" align="left"> 
+<img src="https://github.com/user-attachments/assets/a1bbe16b-a499-4697-8acf-0c1c2567e6c2" alt="Alt Text" width="150" height="150" align="left"> 
 
 ### Hi, I'm Krisan!
 🎓 _Graduated with a Bachelor of Science with Honours in Forestry_
